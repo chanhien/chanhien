@@ -1,0 +1,3 @@
+- Post-graduate in Saigon
+- Python and TS enjoyer
+- VI/EN/日 OK
